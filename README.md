@@ -10,7 +10,7 @@ Batch: February-P1 2026
 
 Domain: Graphic Design Intern
 
-Connect: LinkedIn
+Connect: Linkdin - www.linkedin.com/in/abilashiny-selvakumaran
  | Email: abilashinyabila@gmail.com
 
 📁 Tasks Completed
